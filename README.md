@@ -6,3 +6,4 @@ Rules: You have to answer at least half the questions in 60seconds to win the ga
 xx</br>
 (_/)</br>
 (•x•)
+probably a virus too..
